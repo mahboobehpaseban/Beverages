@@ -1,37 +1,26 @@
-
-☕️coffee Melolearn☕️
-
-![App Mockup 9](https://github.com/mahboobehpaseban/coffee/assets/121792560/08c58fd9-b61f-4942-a939-9d104e562ef0)
+Hello Creative People!  
 
 
+Hello dear friends and followers of the beverage website! This is a place where lovers of drinks and fans of different flavors come together to benefit from their experiences, ideas and knowledge. This is a place where, with beautiful design and attractive content, you can provide your users with a memorable and enjoyable experience. I hope this website will always be a source of new ideas and experiences for you dear friends, and make you happy and enjoy different drinks. By offering comments, suggestions and creative ideas, we are always looking for the best and most attractive experience for you.
 
-...
-..
-.
-..
+
 .
 .
-..
 
-💯💯Experience it with Melolearin Coffee app....💯💯
 
-It’s amazing how the world begins to change through the eyes of a cup of coffee.”
 
-..
+
 .
-..
+.
+.
 .
 
+🌏My social networks🌏:                                                                                                                                                                                    
 
+💗 https://www.instagram.com/web__melolearn/✔️✔️                                                                                                                                                                
 
-
-![Untitled](https://github.com/mahboobehpaseban/coffee/assets/121792560/cc89b28a-4a75-4299-9b6b-16a4def0e8cf)
-🌏My social networks🌏:
-
-💗 https://www.instagram.com/web__melolearn/✔️✔️
-
-🌏https://www.pinterest.com/mahboobehpaseban/✔️✔️✔️
-
-https://linkedin.com/in/mahboobeh-paseban-7896a71a0☕️☕️✔️✔️☕️☕️
-
-https://dribbble.com/MahboobehPaseban☕️☕️
+🌏https://www.pinterest.com/mahboobehpaseban/✔️✔️✔️                                                                                                                                     
+ 
+https://linkedin.com/in/mahboobeh-paseban-7896a71a0✔️✔️
+.                                                                                                                                   
+(https://dribbble.com/shots/22326161-Fashion-Web-Store-UI)https://dribbble.com/shots/22326161-Fashion-Web-Store-UI
