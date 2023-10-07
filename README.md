@@ -14,7 +14,6 @@ Hello dear friends and followers of the beverage website! This is a place where 
 
 
 
-https://github.com/mahboobehpaseban/Beverages/assets/121792560/305ac790-4393-44d5-9021-a96031f791ef
 
 
 
